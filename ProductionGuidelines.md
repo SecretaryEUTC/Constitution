@@ -14,6 +14,7 @@ Before the GM, you will need to fill out a written proposal found on the members
   1. does not have enough information
   1. would break the law
   1. damage the theatre in the short or long term
+  
 It may not reach the GM. This proposal is due the week before the GM (usually the Wednesday) at 9pm. If it is not submitted by the deadline, it will be marked late which will automatically give you the last preference at the GM. If at any point, you have any questions take a look at past proposals (found under the proposals sections of the website) or contact the Productions Manager! 
 
 For the proposal of an Extraordinary, as per the Standing Orders B 3.4, the proposal must be submitted to the committee no later than the Committee Meeting prior to the proposal submission deadline (i.e. two meetings prior to the GM). The written proposal must be submitted prior to the written proposal submission deadline or else it will be marked as Late. Any proposal of an Extraordinary that clashes with another EUTC show, or event, is declared void; including allocated show slots. The production team of the affected show or event may choose to waive this right, in order to allow the Extraordinary to take place. In order to avoid this, contact the prod team that would be affected by the Extraordinary prior to submitting the proposal to the Committee.
